@@ -1,4 +1,4 @@
-### Hi! I'm Vincent, an undergraduate studying software technology!
+### Hi! I'm Vincent, a graduate student studying computer science!
 
 ### 💻 &nbsp;About Me 
 
